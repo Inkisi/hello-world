@@ -1,3 +1,3 @@
 # hello-world
 # this is so funny! :joy:
-# brought me sadness :tears:
+# brought me sadness! :crying cat-face:
